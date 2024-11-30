@@ -1,5 +1,5 @@
 
-Are you crazy? I can't swallow that.
+Are you crazy?🍗 I can't swallow that.
 =====================================
 
 .. post:: 20, July 2020
